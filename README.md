@@ -1,1 +1,1 @@
-# .github
+> this project is discontinued.
