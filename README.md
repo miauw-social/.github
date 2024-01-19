@@ -1,1 +1,1 @@
-> this project is discontinued.
+> Revolutionizing Social Media
